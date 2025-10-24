@@ -1,4 +1,5 @@
 <img width="755" height="432" alt="image" src="https://github.com/user-attachments/assets/adfd0fa2-8a07-420b-b74c-e1c57323ca31" />
+Access SolGalax for completely free here - t.me/solgalax
 
 ### SolGalaxy isn’t staking. It’s not lending. It’s statistical arbitrage.
 
